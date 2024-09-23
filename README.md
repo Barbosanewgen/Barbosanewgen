@@ -1,4 +1,4 @@
-## Boas aao meu perfil  🏄
+## Boas ao meu perfil  🏄
 
 Meu nome é Erick
 
